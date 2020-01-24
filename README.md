@@ -1,1 +1,0 @@
-# sinanaslan.github.io
